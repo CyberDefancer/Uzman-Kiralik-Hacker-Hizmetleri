@@ -38,11 +38,6 @@ Hizmetlerimizden yararlanmak için aşağıdaki bağlantıları kullanarak bize 
 
 
 WhatsApp: https://wa.me/905518777084
-
 Twitter: https://x.com/KiralikHack3r
-
-İnstagram: https://instagram.com/kiralamahacker
-
 Facebook: https://www.facebook.com/profile.php?id=61557052910676
 
-Facebook Grup: https://www.facebook.com/groups/386645934119281/
